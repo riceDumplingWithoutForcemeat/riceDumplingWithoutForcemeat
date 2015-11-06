@@ -1,2 +1,0 @@
-# riceDumplingWithoutForcemeat
-666
